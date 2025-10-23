@@ -25,6 +25,7 @@
 **CIRCUIT DIAGRAM:**
 
 
+![Uploading 312167d7-a98e-48a2-8e04-d092e44ec0b8.jpg…]()
 
 
 
